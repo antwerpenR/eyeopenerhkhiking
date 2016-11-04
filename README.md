@@ -1,4 +1,4 @@
-# eyeopenerhkhiking
+# Eye Opener HK Hiking App Privacy Policy
 
 This is the privacy policy for Privacy Policy for Eye Opener HK Hiking 開眼界行山隊 App - hereafter referred to as TheApp.
 TheApps are produced by New Perspectives Far East Limited registered at 3F, 148 Wing Lok Street, Sheung Wan Hong Kong - hereafter referred to as NPFE.
